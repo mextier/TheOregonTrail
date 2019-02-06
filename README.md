@@ -3,6 +3,7 @@ The Oregon Trail game
 
 GAMES:
 https://r-games.net/870-oregonskaya-tropa-focal.html
+https://www.old-games.ru/game/2347.html
 
 GAMEPLAY:
 https://www.youtube.com/playlist?list=PL8bDLBaBZGsT7lEfGonLOwHnpewniwMwQ
